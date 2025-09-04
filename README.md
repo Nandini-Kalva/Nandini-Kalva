@@ -28,7 +28,7 @@
 
 ## Connect with Me  
 -  **Email:** knandini778070@gmail.com  
--  **LinkedIn:** [Your LinkedIn Link]  
+-  **LinkedIn:** www.linkedin.com/in/nandini-kalva-55a340267 
 -  **GitHub:** [nandini-kalva](https://github.com/nandini-kalva)  
 
 ---
